@@ -11,6 +11,7 @@ Confira tudo o que temos no nosso YouTube. É gratis!
 Pessoas participantes:
 
 - Igor Dammous
+- Infoslack
 - Mateus Dantas
 - Tales
 - Téo Calvo
